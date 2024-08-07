@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Farkamatmar
+- 🌱 I’m currently learning baszzas
+- 📫 How to reach me Sehogy  
+- ⚡ Fun fact: csak a baszzas
